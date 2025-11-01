@@ -4,5 +4,6 @@ i know almost every fandom so feel free to int! sometimes im offtab so w2i,
 no i WONT judge you based on the popularity of the music u listen to,
 sorry but i know only english and polish <-<,
 I wont answer any personal questions until were somewhat familiar or friends!,
-mostly just they/them but i dont really care to be honest,,,
+mostly just they/them but i dont really care to be honest,,,.
+I have severe social anxiety YES EVEN ON THE INTERNET soo im not REALLY that talkative and i say stupid things too fast sometimes ..,
 
