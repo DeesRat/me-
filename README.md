@@ -7,3 +7,4 @@ I wont answer any personal questions until were somewhat familiar or friends!,
 mostly just they/them but i dont really care to be honest,,,.
 I have severe social anxiety YES EVEN ON THE INTERNET soo im not REALLY that talkative and i say stupid things too fast sometimes ..,
 
+i get attached REALLY fast so every person i meet on pt leaves me after 2 days lmao
